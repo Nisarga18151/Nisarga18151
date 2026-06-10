@@ -66,8 +66,8 @@ I love turning messy datasets into clean, meaningful insights that help in real-
 
 
 ## 🔗 Connect With Me
-- 💼 Naukri: https://www.naukri.com/mnjuser/profile?id=&altresid
-- 📧 Email: arfathkasimshaikh215@gmail.com
+- 💼 linkedin: www.linkedin.com/in/nisarga-k-25b252245
+- 📧 Email: nisargakrishna789@gmail.com
 
 ---
 
